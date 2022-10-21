@@ -1,1 +1,1 @@
-# Lab-2B-Extension-Board-Proposal-
+# Lab-2B-Extension-Board-Proposal
